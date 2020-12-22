@@ -1,0 +1,1 @@
+Tandoori paneer tikka is immensely popular north indian starter served in indian resturants. It is one of the most orderd vegetarian appetizer and is much loved by everyone for its amazing tandoori taste.
